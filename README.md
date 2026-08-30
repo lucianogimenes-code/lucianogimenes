@@ -1,2 +1,2 @@
 # lucianogimenes
-Formações, itens pessoais e mais
+Tecnologo em Gestão Empresarial,  em Logística,  Matemático e Físico.
